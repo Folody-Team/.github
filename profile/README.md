@@ -1,3 +1,1 @@
-<div align="center">
-  <img src="https://media.discordapp.net/attachments/911476758950346802/934057364544426034/image46Artboard_1.png"/>
-</div>
+Established in 2021, based on the idea of providing people with the best information technology products. Here we always do our best to create and turn it into products that give users an interesting experience
